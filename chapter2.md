@@ -1,5 +1,5 @@
 # Capítulo 2
 
 aaaaaaaaaaaaaaaaaaaaaaa
-capituloooooooooooooooo
+capitul o ooooooooooooooo
 aaaaaaaaaaaaaaaaaaaaaaa
